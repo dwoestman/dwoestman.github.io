@@ -1,5 +1,4 @@
-# handbooks
-District100 Handbooks
+# District100 Handbooks
 
 Belvidere Community Unit School District 100
 www.district100.com
