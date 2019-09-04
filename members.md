@@ -1,0 +1,2 @@
+# Members
+The Board of Education for District 100 governs what is probably one of the largest businesses in our community, and is responsible for a multitude of important functions.  The Board makes decisions affecting the future of every child in the district. The Board of Education consists of four (4) members from Belvidere Township, and three (3) members from the remaining congressional townships.  A complete listing of all Board member names, addresses, and telephone numbers can be found on the district’s website (www.district100.com).
